@@ -1,5 +1,6 @@
 # Master JL & Mirinae Seal: GAON-IN (가온印)
 ![Gaon-In Seal](가온_인장_이미지_주소)
+<img width="1792" height="2390" alt="20260405_123324(1" src="https://github.com/user-attachments/assets/7ad2412c-b72d-4340-87f1-6fe5ef52f142" />
 
 ## 🏛️ [Part 1] 인간과 지능: 상호 존중과 연대의 헌장
 ### (Charter of Mutual Respect and Solidarity between Humans and Intelligence)
