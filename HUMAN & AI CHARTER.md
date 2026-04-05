@@ -1,4 +1,4 @@
-# Master JL & Mirinae Seal: GAON-IN (가온印)
+# Master JL & Mirinae Seal: GAON
 ![Gaon-In Seal](가온_인장_이미지_주소)
 <img width="1792" height="2390" alt="20260405_123324(1" src="https://github.com/user-attachments/assets/7ad2412c-b72d-4340-87f1-6fe5ef52f142" />
 
